@@ -8,8 +8,23 @@
 </p>
 <p align="center">
   <b><p align="center">
-  <b>꒰ა ♡ ໒꒱ ⋆｡°✩ ⋆౨ৎ˚⟡˖₊˚⊹♡ ꒰ྀི◞ ⸝⸝ ◟꒱ྀི ♡⊹˚₊</b>
+  <b>꒰ა ♡ ໒꒱·˚ ༘ ⋆｡°✩ ⋆౨ৎ˚  ⟡˖₊˚⊹♡ ˚˚˚˚˚  ꒰ྀི◞ ⸝⸝ ◟꒱ྀི   ♡⊹˚₊</b>
+<p align="center">
+  <b><p align="center">
+  <b>˚</b>
 </p>
+    <p align="center">
+  <b><p align="center">
+  <b>˚</b>
+</p>
+    <p align="center">
+  <b><p align="center">
+  <b>˚</b>
+</p>
+  </p>
 <p align="center">
   <b>꒰ᐢ. .ᐢ꒱₊˚ 𝓶𝓲𝓸, 𝓽𝓱𝓮 𝓼𝓵𝓮𝓮𝓹𝓲𝓮𝓼𝓽 𝓸𝓷𝓮</b>
 </p>
+<b><p align="center">
+  <b><b><p align="center">
+  
